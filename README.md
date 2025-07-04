@@ -12,4 +12,4 @@
 关键词合理布局，如“日本AV免费”、“高清日本AV”等，提升搜索相关性。支持多设备访问，视频播放流畅无广告，提升用户体验。内链推荐相关影片，增加浏览量。
 通过外链和社交推广增强权威性，结合数据分析优化内容和结构，保持排名稳定。总之，内容丰富、体验好、优化科学，是排名第一的关键。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/vv20250704/vv01 ）</span>
